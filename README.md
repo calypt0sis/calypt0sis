@@ -1,4 +1,4 @@
-## Calypt0sis – L'Esprit Masqué
-Invisible parmi les invisibles, Calypt0sis est une brume qui dérive à travers les réseaux, effleurant à peine la surface avant de disparaître. Il n’a ni visage ni forme, seulement des traces évanescentes laissées dans les codes. Ceux qui croisent son chemin ne savent jamais s'ils ont été observés ou manipulés. Il redéfinit les règles de l’invisible et réécrit la trame même du virtuel.
+## Calypt0sis - The Masked Spirit
+Invisible among the invisible, Calypt0sis is a mist drifting across networks, barely skimming the surface before disappearing. He has no face or form, only evanescent traces left in the codes. Those who cross his path never know whether they have been observed or manipulated. He redefines the rules of the invisible and rewrites the very fabric of the virtual.
 
 ---
